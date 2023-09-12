@@ -1,4 +1,4 @@
-### UI / UX 디자이너 김민주입니다☀️
+### UI / UX 디자이너 김민주입니다 ☀️
 
 <!--
 **minju011203/minju011203** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
